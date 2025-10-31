@@ -31,7 +31,7 @@ Main topics include:
 
 ## 📜 Certificate
 
-You can view my course completion certificate [here](https://coursera.org/share/your-certificate-link-here)
+You can view my course completion certificate [here](https://coursera.org/share/5483dd8d637b7b66152b03c59121a5a0)
 
 ---
 
